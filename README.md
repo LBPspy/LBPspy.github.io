@@ -1,2 +1,2 @@
 # GO AWAY
-#### [to here](https://twitch.tv/joelplzno)
+### [to here](https://twitch.tv/joelplzno)
